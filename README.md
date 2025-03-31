@@ -1,4 +1,4 @@
-_**QuickQ【官方电脑版下载】**_
+**QuickQ【官方电脑版下载】**
 
 ><sub>quickq, quickq官网, quickq电脑版下载，quickq客户端下载, quickq下载，新用户免费试用，一个账号3台设备同时使用，超千台节点，不限流量，超强隐私保护。支持 Android / iOS / Windows / Mac / Ubuntu。7x15在线服务，保障服务可用性！	</sub>
 
